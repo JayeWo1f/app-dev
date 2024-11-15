@@ -8,9 +8,9 @@
 5. Sangarios Erica Mae 🙉
 
 ## Favorite Movies/Series
-**Alikabok sa ilalim ng dagat**
-**Bata Bata Paano ka Ginawa**
-**Wowoin**
+1. **Alikabok sa ilalim ng dagat**
+2. **Bata Bata Paano ka Ginawa**
+3. **Wowoin**
 
 ### Happy New Year Every One ! 
 🥊🥊🥊💌
